@@ -2,13 +2,13 @@
 
 ### A passionate Data & AI Analytics Specialist
 
-<p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=hasnainmunir62000-wq" alt="hasnainmunir62000-wq" /></a> </p>
+
 
 - 🌱 I'm currently learning **Gen AI**
 
 - 📫 How to reach me **hasnainmunir62000@gmail.com**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/14YF4BRLMwAptfBsnf-KvKwZfMxZGwU8l/view?usp=sharing](https://drive.google.com/file/d/14YF4BRLMwAptfBsnf-KvKwZfMxZGwU8l/view?usp=sharing)**
+-  Know about my experiences **[https://drive.google.com/file/d/14YF4BRLMwAptfBsnf-KvKwZfMxZGwU8l/view?usp=sharing](https://drive.google.com/file/d/14YF4BRLMwAptfBsnf-KvKwZfMxZGwU8l/view?usp=sharing)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
